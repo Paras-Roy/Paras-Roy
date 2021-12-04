@@ -2,4 +2,4 @@
 ![peaceful valley](images/peace.jpg)
 Maybe I'm still learning?
 
-Web Developer Paras in the building baby..
+Wanna be a Web Developer..
