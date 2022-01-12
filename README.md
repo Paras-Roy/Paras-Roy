@@ -1,3 +1,2 @@
-# Pretty quite here
+# Acquiring Skills!
 ![peaceful valley](images/peace.jpg)
-I am acquiring skills!
