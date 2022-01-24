@@ -1,2 +1,2 @@
 # Acquiring Skills!
-![peaceful valley](images/peace.jpg)
+![not NSUT](images/peace.jpg)
