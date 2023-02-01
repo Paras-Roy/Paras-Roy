@@ -1,2 +1,1 @@
-# Acquiring Skills!
-![not NSUT](images/peace.jpg)
+## Professional Web Fanatic and Tech Enthusiast
