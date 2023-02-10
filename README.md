@@ -1,1 +1,1 @@
-## Professional Web Fanatic and Tech Enthusiast
+## Web Fanatic and Tech Enthusiast
